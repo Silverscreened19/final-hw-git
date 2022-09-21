@@ -7,4 +7,4 @@
    
 ![](https://encrypted-tbn1.gstatic.com/images?q=tbn:ANd9GcTCaFQddfIbSikSS84Z4kT--uaWdtw24kxrtb6NP7SWKS__CU3p)
 
-*för översättning, fortsätt till [google translator](https://translate.google.com/?hl=ru)*
+*för översättning, fortsätt till [google translate](https://translate.google.com/?hl=ru)*
